@@ -1,1 +1,2 @@
-# Photos of the trips
+# IMAGES OF SPECIAL OCCASIONS
+
